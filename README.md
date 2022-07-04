@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PrecyWil
+- 👋 Hi, I’m Amalachukwu Precious, William
 - 👀 I’m interested in ... Cloud Engineering
 - 🌱 I’m currently learning ... html
 - 💞️ I’m looking to collaborate on ... 
